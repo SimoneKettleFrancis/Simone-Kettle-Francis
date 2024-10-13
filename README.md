@@ -3,7 +3,7 @@ Simone Kettle Francis Case Study &amp; Projects
 Beta Testing Experience: xAI’s Grok Project
 
 Beta Test Summary
-
+https://askaltheasimone.wixsite.com/simone-ai-hub-soluti/blank-4
  
 
 As a seasoned professional with a robust background in compliance, project management, and talent development, I bring a unique perspective to the evolving field of artificial intelligence. My experience spans nearly a decade in government contracting, where I have successfully contributed to multimillion-dollar projects. I have developed a keen understanding of the intersection between technology and human behavior, allowing me to approach AI not just as a tool but as a transformative agent.
